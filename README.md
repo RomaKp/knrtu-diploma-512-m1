@@ -1,0 +1,1 @@
+# knrtu-diploma-512-m1
